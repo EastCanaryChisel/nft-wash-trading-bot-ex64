@@ -1,4 +1,4 @@
-# 
+# instant NFT Sniper for nft wash trading bot | proxy-transactions & simulation-mode is the best nft wash trading bot, featuring proxy-transactions and simulation-mode. Fast, smart,
 
 
 
